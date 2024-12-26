@@ -1,1 +1,1 @@
-https://crucified999.github.io/zakrivayuschiy-teg-f/
+https://github.com/crucified999/zakrivayuschiy-teg-f/
